@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nanxiake
+- 🌱 Post-00 tech nerd, slow-burning, love programming, love music, love basketball, and focus on web development.
+- 👀 Bring back the lost self bit by bit...
+- 📫 3168593135@qq.com
+- 💻 https://www.nanxiake.vip
